@@ -1,5 +1,4 @@
 # all my rook skins
-no i dont know what colour grass is
 ** = Tricksy is my oc
 
 <img width="301" height="353" alt="Screenshot 2026-07-10 15 37 14" src="https://github.com/user-attachments/assets/dd6516bf-5754-449d-ad4b-05c987c53c9d" />
