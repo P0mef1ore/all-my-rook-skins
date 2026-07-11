@@ -1,19 +1,17 @@
 # all my rook skins
-** = Tricksy is my oc
+Tricksy is my oc
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 37 14" src="https://github.com/user-attachments/assets/dd6516bf-5754-449d-ad4b-05c987c53c9d" />
+<img width="188" height="252" alt="pony-town-Rook x Tricksy-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/78f30863-dcaf-420e-8add-f1c293296667" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 37 07" src="https://github.com/user-attachments/assets/b2b9d5c0-fefd-48a8-907d-8b1ea51d7748" />
+<img width="188" height="252" alt="pony-town-Rook - 🎭 kssr - twst f_o-trot-blinking-padded-toy349-4x" src="https://github.com/user-attachments/assets/9f03259e-ffae-4fd7-865b-bd4873c6856c" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 36 49" src="https://github.com/user-attachments/assets/232ab466-a6cf-4a86-b2e0-bc9a52318a8e" />
+<img width="188" height="252" alt="pony-town-euehueh waaaif-----------------trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/9bae7279-2bf2-4443-b7c9-6ce74188763e" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 36 41" src="https://github.com/user-attachments/assets/7f0b0a0a-442f-41a2-8384-609a8688ae6f" />
+<img width="184" height="252" alt="pony-town-idk-trot-blinking-padded-toy351-4x" src="https://github.com/user-attachments/assets/35d9368a-6d94-40ed-883d-900d0ff74282" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 36 30" src="https://github.com/user-attachments/assets/4516616b-594a-4aa6-bf4c-203fa5c11bae" />
+<img width="188" height="252" alt="pony-town-beans day-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/fe499056-48d6-4bba-89c5-d2bf0ad67427" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 36 16" src="https://github.com/user-attachments/assets/30fa71c3-ac43-41a3-8788-cca95edc14b4" />
+<img width="208" height="268" alt="pony-town-svnaclw rook - 🐇 kssr-trot-blinking-padded-toy270-4x" src="https://github.com/user-attachments/assets/c1e526e4-aaa7-4f3e-b569-3b4a7bf17cee" />
 
-<img width="301" height="353" alt="Screenshot 2026-07-10 15 35 52" src="https://github.com/user-attachments/assets/199b0be1-bace-45d3-841f-75114a200af4" />
-
-<img width="318" height="346" alt="Screenshot 2026-07-10 22 11 42" src="https://github.com/user-attachments/assets/323be2c1-6df1-4e4c-885c-35ebc2e4d25c" />
+<img width="208" height="276" alt="pony-town-making strawpage yauy-trot-blinking-padded-toy40-4x" src="https://github.com/user-attachments/assets/1e8940f7-a56e-44de-b6a7-be57a4b74890" />
 
