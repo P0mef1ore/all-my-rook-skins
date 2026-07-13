@@ -14,5 +14,6 @@
 
 <img width="188" height="252" alt="pony-town-making strawpage yauy-trot-blinking-padded-toy40-4x" src="https://github.com/user-attachments/assets/1e8940f7-a56e-44de-b6a7-be57a4b74890" />
 
-![Uploading pony-town-yauy_)_)-trot-blinking-padded-toy349-4x.gif…]()
+<img width="188" height="252" alt="pony-town-yauy_)_)-trot-blinking-padded-toy349-4x" src="https://github.com/user-attachments/assets/3ac29b2a-279a-4368-aae7-b56de797f171" />
+
 
