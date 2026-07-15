@@ -16,4 +16,7 @@
 
 <img width="188" height="252" alt="pony-town-yauy_)_)-trot-blinking-padded-toy349-4x" src="https://github.com/user-attachments/assets/3ac29b2a-279a-4368-aae7-b56de797f171" />
 
+<img width="176" height="232" alt="pony-town-scene rook aww awww awwwwwwww-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/18e94b66-c290-4200-84e4-3f311d5b870b" />
+
+
 
