@@ -1,4 +1,5 @@
 # all my rook skins gulp
+this is literally so laggy ill make another soon
 
 <img width="188" height="252" alt="pony-town-Rook x Tricksy-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/78f30863-dcaf-420e-8add-f1c293296667" />
 
@@ -17,6 +18,9 @@
 <img width="188" height="252" alt="pony-town-yauy_)_)-trot-blinking-padded-toy349-4x" src="https://github.com/user-attachments/assets/3ac29b2a-279a-4368-aae7-b56de797f171" />
 
 <img width="188" height="252" alt="pony-town-scene rook aww awww awwwwwwww-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/18e94b66-c290-4200-84e4-3f311d5b870b" />
+
+<img width="188" height="252" alt="pony-town-ok so that sucked-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/6213576a-11d8-47fd-9bed-1f7a782d128d" />
+
 
 
 
